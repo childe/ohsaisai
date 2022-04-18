@@ -1,0 +1,15 @@
+#theme: minima
+remote_theme: jekyll/minima
+
+# Site settings
+title: OH赛赛
+email: rmself@qq.com
+description:
+
+baseurl: ""
+url: "https://ohsaisai.com"
+
+excerpt_separator: <!--more-->
+
+plugins:
+- jekyll-remote-theme
