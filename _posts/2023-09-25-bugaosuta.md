@@ -15,3 +15,9 @@ layout: post
 赛赛：挨了。
 
 然后赛赛对爷爷说：以后我捣蛋了不要给他说，要不然我又得疼。
+
+![好看的5](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2023/09/WechatIMG42.jpeg?x-oss-process=style/ohsaisaih)
+
+![泳镜1](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2023/09/WechatIMG5805.jpeg?x-oss-process=style/ohsaisaih)
+
+![泳镜2](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2023/09/WechatIMG5806.jpeg?x-oss-process=style/ohsaisaih)
