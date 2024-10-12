@@ -17,3 +17,13 @@ layout: post
 赛赛说，行。然后就跑去拿钱了。
 
 这么扣门的小赛赛，居然毫不犹豫地把钱拿来了。这个望远镜是非买不可了~
+
+![](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2024/10/58221728740792_.pic.jpg?x-oss-process=style/ohsaisaih)
+
+![](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2024/10/58221728740792_.pic.jpg?x-oss-process=style/ohsaisaih)
+
+![](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2024/10/58231728740792_.pic.jpg?x-oss-process=style/ohsaisaih)
+
+![](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2024/10/58241728740793_.pic.jpg?x-oss-process=style/ohsaisaih)
+
+![](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2024/10/58271728740795_.pic.jpg?x-oss-process=style/ohsaisaih)
