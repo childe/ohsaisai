@@ -1,12 +1,10 @@
 ---
-
-date: 2026-05-08T13:38:39+0800
+date: 2026-05-08T20:33:00+0800
 title: 旷野之息
 layout: post
-
 ---
 
-赛赛在玩塞尔达传说 旷野之息
+在玩塞尔达传说 旷野之息
 
 ![玩塞尔达1](https://ohsaisai.oss-cn-shanghai.aliyuncs.com/2026/05/20260508-191566.jpg)
 
